@@ -1,4 +1,3 @@
-# poop
 
 ![alt text](IMG_3897.jpeg)
 
