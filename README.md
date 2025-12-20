@@ -1,5 +1,6 @@
 
-![alt text](IMG_3897.jpeg)
+![IMG_3897](https://github.com/user-attachments/assets/c15077cd-b567-48d7-b4a7-ed3a9168b44a)
+
 
 hi im frances / eclipse and i like metal music okay?
 (im shit at introducing myself wowwww)
