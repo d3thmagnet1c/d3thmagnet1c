@@ -1,6 +1,7 @@
 
 <img width="2213" height="1108" alt="Untitled201_20251220222316" src="https://github.com/user-attachments/assets/67d03c18-4971-41b9-b1be-079e8c9a2beb" />
 
+<img width="2213" height="270" alt="Untitled201_20251220223504" src="https://github.com/user-attachments/assets/43401885-cd24-4dc7-8bd3-bd1775f328db" />
 
 
 hi im frances / eclipse and i like metal music okay?
