@@ -1,5 +1,6 @@
 
-![IMG_3897](https://github.com/user-attachments/assets/c15077cd-b567-48d7-b4a7-ed3a9168b44a)
+<img width="2213" height="1108" alt="Untitled201_20251220222316" src="https://github.com/user-attachments/assets/67d03c18-4971-41b9-b1be-079e8c9a2beb" />
+
 
 
 hi im frances / eclipse and i like metal music okay?
