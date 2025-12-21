@@ -28,6 +28,8 @@ also friend requests r okay u dont need to ask twin
 
 . i have no mouth and i must scream !
 
+. metalocalypse: dethklok !
+
 ![IMG_3537](https://github.com/user-attachments/assets/eea9ac14-4e5d-4e61-9a4e-9cde8c9cae7e)
 
 
