@@ -30,6 +30,8 @@ also friend requests r okay u dont need to ask twin
 
 . metalocalypse: dethklok ! 🤘
 
+. whiplash (2014) 🥁
+
 <img width="2213" height="270" alt="Untitled201_20251220223504" src="https://github.com/user-attachments/assets/ed0ebb3e-2904-4dc4-b53f-aece3b22aa5f" />
 
 
