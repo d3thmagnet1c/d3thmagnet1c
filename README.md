@@ -16,23 +16,8 @@ cuh i also have a potty humor caus i havent matured yet 💔💔💔
 uh i am minor so pls no interact if youre 240 months old okay? 
 also friend requests r okay u dont need to ask twin 
 
-**fandoms i guess**
 
-. metallica ! 🎸
-
-. megadeth ! ☢️
-
-. nirvana ! 🪽
-
-. x-men ! 🦹
-
-. i have no mouth and i must scream ! 🐌
-
-. metalocalypse: dethklok ! 🤘
-
-. whiplash (2014) 🥁
-
-. 1984 👁️
+check my straw uwu
 
 <img width="2213" height="270" alt="Untitled201_20251220223504" src="https://github.com/user-attachments/assets/ed0ebb3e-2904-4dc4-b53f-aece3b22aa5f" />
 
