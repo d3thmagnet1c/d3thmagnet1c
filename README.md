@@ -7,7 +7,7 @@
 hi im frances / eclipse and i like metal music okay? \m/
 (im shit at introducing myself wowwww)
 
-**I DECLARE MYSELF AS CASTOR HETFIELDS BIGGEST GOONER, IF YOU THINK OTHERWISE I WILL HAVE TO KILL YOU... 👿**
+**I DECLARE MYSELF AS JOTARO KUJO BIGGEST GOONER, IF YOU THINK OTHERWISE I WILL HAVE TO KILL YOU... 👿**
 
 cuh i also have a potty humor caus i havent matured yet 💔💔💔
 
